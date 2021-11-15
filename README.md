@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @azkar17
-- 👀 I’m interested in ...
+- 👀 I’m interested in 🛌 🍴 🧑‍💻 💻 💡
 - 🌱 I’m currently learning PHP and Website
 - 💞️ I’m looking to collaborate on project
 - 📫 How to reach me at azkarabidi17@gmail.com
